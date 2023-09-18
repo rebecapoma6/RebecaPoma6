@@ -15,7 +15,9 @@ ___
 
 ### Find me on :
 
-My linkedln  ![LinkedinGIF](https://github.com/rebecapoma6/RebecaPoma6/assets/132651136/84ffa5d1-90f4-405b-b6e3-771ff3a103c8)
+My linkedln
+
+  ![LinkedinGIF](https://github.com/rebecapoma6/RebecaPoma6/assets/132651136/84ffa5d1-90f4-405b-b6e3-771ff3a103c8)
 
 
 
